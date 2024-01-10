@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning modcom institution of technology
 - 💞️ I’m looking to collaborate on github.com
 - 📫 How to reach me.Am a kenyan from Makueni county
-- 😄 Pronouns:Emmanu
+- 😄 Pronouns:he/him
 - ⚡ Fun fact:mmmhhh
 
 <!---
